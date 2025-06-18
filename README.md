@@ -1,4 +1,5 @@
-# wildcard
+# wildcard官网入口
+
 wildcard虚拟卡申请官网入口：[https://wildscard.com](https://wildscard.com)
 
 wildcard虚拟卡官方优惠邀请码和折扣码：**UPGPT**
@@ -26,3 +27,11 @@ wildcard已经稳定了很久了，之前的很多虚拟卡跑路了或者出事
 ![](https://files.mdnice.com/user/41479/4043c6cf-7bc4-42c7-a31d-f6048d04c0bc.png)
 
 如果wildcard没了，那就国内没有什么比较方便进行支付的方式了。
+
+**wildcard支持支付的海外服务很多**，没有的直接联系客服补上就行。
+
+![](https://files.mdnice.com/user/41479/0618ef66-1797-4193-b868-df9036b39e8f.png)
+
+**wildcard支持支付宝进行充值和提现**，提现正常情况下都是秒到账。
+
+![](https://files.mdnice.com/user/41479/c9c8e10b-b5e5-42c0-8140-ec735b5786d1.png)
